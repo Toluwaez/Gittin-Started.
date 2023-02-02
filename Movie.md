@@ -1,6 +1,4 @@
-_My name is Toluwanimi Oladele-Ajose_
-*I grew up in Nigeria*
-**I Moved over to the United States at the Age of 16**
-<p>I definetly felt some type of culture shock moving to a new environment.</p>
-<p>I love playing the drumset</p>
-<p> This is the end of my summary</p>
+_the name of the movie is Glass Onion_
+*2023 Oscar Nominee*
+**A billionaire's frienmies - and super sleuth benoit Blanc - arrive on a greek island for a weekend murder - mystery game. The suspense could kill them**
+<p>It is Definelty a must watch .</p>
